@@ -1,4 +1,4 @@
-**Dec 6**  TUES 6pm McLuhan-Finnegans Wake Reading Club MDR Library 4533 admiralty way FREEEEE
+**Dec 6**  TUES 6pm McLuhan-Finnegans Wake Reading Club MDR Library 4533 admiralty way FREE
 
 Dec 10 SAT 4-6pm MESS – Poet-playwright S. A. (Steven) Gerber interview  at unurban 3301 pico FREE
 
