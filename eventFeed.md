@@ -2,7 +2,7 @@ Dec 12, MON 6pm [PXL THIS 26 toy camera film festival](http://laughtears.com/PXL
 
 Dec 18 SUN 7:30pm Leonard Cohen Celebration - live music and rare film clips at beyond baroque 681 venice blvd, FREE
 
-Dec 20 TUES 8pm SUZY WILLIAMS jazz and blues at [Coffee Gallery](https://www.coffeegallery.com/showsat.htm) 2029 N Lake Altadena CA 91001 626-798-6236
+Dec 20 TUES 8pm SUZY WILLIAMS jazz at [Coffee Gallery](https://www.coffeegallery.com/showsat.htm) 2029 N Lake Altadena CA 91001 626-798-6236
 
 Dec 21 Wed, 6-9pm: MOM- MEDIA DISCUSSION at beyond baroque 681 venice blvd venice ca FREE
 
