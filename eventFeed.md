@@ -1,7 +1,3 @@
-**Dec 6**  TUES 6pm McLuhan-Finnegans Wake Reading Club MDR Library 4533 admiralty way FREE
-
-Dec 10 SAT 4-6pm MESS – Poet-playwright S. A. (Steven) Gerber interview  at unurban 3301 pico FREE
-
 Dec 12, MON 6pm [PXL THIS 26 toy camera film festival](http://laughtears.com/PXL-THIS-26.html)  at Unurban 3301 pico blvd [**Facebook**](https://www.facebook.com/events/291091181284555/) FREE
 
 Dec 18 SUN 7:30pm Leonard Cohen Celebration - live music and rare film clips at beyond baroque 681 venice blvd, FREE
