@@ -1,15 +1,3 @@
-Dec 12, MON 6pm [PXL THIS 26 toy camera film festival](http://laughtears.com/PXL-THIS-26.html)  at Unurban 3301 pico blvd [**Facebook**](https://www.facebook.com/events/291091181284555/) FREE
-
-Dec 18 SUN 7:30pm Leonard Cohen Celebration - live music and rare film clips at beyond baroque 681 venice blvd, FREE
-
-Dec 20 TUES 8pm SUZY WILLIAMS jazz at [Coffee Gallery](https://www.coffeegallery.com/showsat.htm) 2029 N Lake Altadena CA 91001 626-798-6236
-
-Dec 21 Wed, 6-9pm: MOM- MEDIA DISCUSSION at beyond baroque 681 venice blvd venice ca FREE
-
-~~Dec 24 and Dec 25 Jazz Funk Fest and 7 Dudley Cinema~~ **postponed till 2017**
-
-Dec 26 MON Laughtears Salon 6-9pm 212 Pier Santa Monica FREE - politics, art culture discussion FREE
-
 **Jan 3** TUES 6pm McLuhan-Finnegans Wake Reading Club MDR Library 4533 admiralty way FREE
 
 Jan 14 SAT 4-6pm MESS – Filmmaker Henry Schipper interview at unurban 3301 pico FREE 
@@ -28,7 +16,7 @@ Jan 23 MON Laughtears Salon 6-9pm 212 Pier Santa Monica - politics, art culture 
 
 Feb 11 SAT 4-6pm MESS – Artist Gordon Winiemko interview at unurban 3301 pico FREE 
 
-Feb 13, MON - **HENRY SCHIPPER FILMS** at Unurban 3301 Pico, FREE, 4pm  -Schipper's engaging documentaris - on Eartha Kitt (42 minutes, 2016) at 6pm Actress, singer, activist, legend, Eartha Kitt's life and career have been wrapped in mystique since she burst on the scene in the 1950s  singing instant classics like "Santa Baby" and "C'est Si Bon".  A true original, Kitt was a pioneering African American presence on Broadway and in Hollywood, and her turn as Catwoman in the 1960s Batman series brought her mainstream acclaim. Uncompromising in her personal life as well as professionally, she publicly confronted Lady Bird Johnson in the White House about the Vietnam War, and she scarcely worked again in the US for ten years. But a new generation embraced Miss Kitt in the 1990s with films like _Boomerang_, and appearances on _Living Single_ and _New York Undercover._ This show explores the woman and the myth. Those interviewed include Reggie Hudlin, Norma Miller, Tessa Thompson, Dick Gregory, Robin Givens and Freda Payne.  And **Rudy Ray Moore, AKA, "Dolemite"** (42 minutes, 2016) at 645pmUnderground legend Rudy Ray Moore nailed his legacy in the mid 1970s with a series of films built around the funkiest superhero of the Blaxploitation era, Dolemite.  Before that, Moore had built a rep as a stand up comedian and recording artist with hard core comedy routines that would have made Redd Foxx blush.  But it was Dolemite, the trash-talking rhymester from the hood, who put him on the map and planted some of the earliest seeds of rap.  Interviews include Big Daddy Kane, Guy and Joe Torry, Too Short, Richard Sandfield, and Luenell. Free Jazz with Films at 4pm [Jazz Funk Fest](http://www.laughtears.com/jazzfunkfest.html)
+Feb 13, MON - **HENRY SCHIPPER FILMS** at Unurban 3301 Pico, FREE, 4pm  -Schipper's engaging documentaris - on Eartha Kitt (42 minutes, 2016) at 6pm Actress, singer, activist, legend, Eartha Kitt's life and career have been wrapped in mystique since she burst on the scene in the 1950s  singing instant classics like "Santa Baby" and "C'est Si Bon".  A true original, Kitt was a pioneering African American presence on Broadway and in Hollywood, and her turn as Catwoman in the 1960s Batman series brought her mainstream acclaim. Uncompromising in her personal life as well as professionally, she publicly confronted Lady Bird Johnson in the White House about the Vietnam War, and she scarcely worked again in the US for ten years. But a new generation embraced Miss Kitt in the 1990s with films like _Boomerang_, and appearances on _Living Single_ and _New York Undercover._ This show explores the woman and the myth. Those interviewed include Reggie Hudlin, Norma Miller, Tessa Thompson, Dick Gregory, Robin Givens and Freda Payne.  And **Rudy Ray Moore, AKA, "Dolemite"** (42 minutes, 2016) at 645pmUnderground legend Rudy Ray Moore nailed his legacy in the mid 1970s with a series of films built around the funkiest superhero of the Blaxploitation era, Dolemite.  Before that, Moore had built a rep as a stand up comedian and recording artist with hard core comedy routines that would have made Redd Foxx blush.  But it was Dolemite, the trash-talking rhymester from the hood, who put him on the map and planted some of the earliest seeds of rap.  Interviews include Big Daddy Kane, Guy and Joe Torry, Too Short, Richard Sandfield, and Luenell. Free Jazz with Films at 4pm [Free Jazz Jubilee](http://www.laughtears.com/freeJazzJubilee.html)
 
 Feb 15 WED, 6-9pm: MOM- MEDIA DISCUSSION at beyond baroque 681 venice blvd FREE
 
