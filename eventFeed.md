@@ -59,7 +59,7 @@ April 22 Sat 7pm Jazz Funk Fest at unurban 3301 pico FREE http://www.laughtears.
 
 April 23 SUNDAY 7pm AN EVENING WITH ANDREI ROZEN - at beyond baroque 681 venice blvd venice ca FREE - Interview =7pm, Film=8:30pm - The Novgorod Spaceship (2016, 46min) Like an abandoned alien spaceship, the building of Dostoevsky's Drama Theatre stands on the bank of Volkhov River, only a kilometer away from the walls of famous Novgorod Kremlin. An architecture freak, unloved and uncared for, it sails high above the comforting provinciality of Novgorod the Great. Erected during the final years of Soviet Rule, this remarkable example of modernist architecture has, for many decades, continued to mock the ancient heritage of the city, as well as the mediocre tastes of its populace. Rozen's engaging film is the story of the theatre's uneasy survival, its persistent inability to fit into the Novgorod's surroundings, and its slow but sure demise at the hands of greedy bureaucrats become a direct metaphor for the Russian society today.
 
-April 24 MON Laughtears Salon 6-9pm 212 Pier Santa Monica free - politics, art culture discussion free
+April 24 MON Laughtears Salon 6-9pm 212 Pier Santa Monica free - politics, art culture discussion frees
 
 =============
 
